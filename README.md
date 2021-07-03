@@ -1,2 +1,2 @@
-# praneeth.github.io
+# mpr36.github.io
 My Portfolio
